@@ -1,8 +1,1 @@
-ˊˊˊ==
-asasdf
-hey
-aˊˊˊ'
-new feature
-gaga
-@@@@@@
-AA
+I dont like u
